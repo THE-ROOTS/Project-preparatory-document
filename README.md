@@ -1,6 +1,6 @@
 # Project-preparatory-document
 
-The Roots Team consist of a well developend team with a variety of skillsets from different backgrounds. 
+The Roots Team consist of a well developed team with a variety of skillsets from different backgrounds. 
 
 **Geneva Knott- Marine Corps Veteran**
 
